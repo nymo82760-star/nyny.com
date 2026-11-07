@@ -1,2 +1,0 @@
-# nyny.com
-idk
